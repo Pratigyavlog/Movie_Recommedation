@@ -1,8 +1,11 @@
 
 
 
-https://github.com/Pratigyavlog/Movie_Recommedation/assets/62683038/2062078c-e9e7-4b62-93fc-7f10f8c64dfb
 
+
+
+
+https://github.com/Pratigyavlog/Movie_Recommedation/assets/62683038/d9930a7e-7722-4956-b5ef-822c7c5cedc7
 
 
 
